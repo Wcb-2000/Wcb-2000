@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+· 标标的前端之路🌱
+· 要努力的学习呀😄
+· 挖掘挖掘挖掘就是了🔭
